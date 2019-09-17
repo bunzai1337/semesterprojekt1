@@ -59,3 +59,8 @@ udarbejdning af egen dagsorden tirsdag d. 17/9.
 
 1210 
 Mads kommer efter sygehusbesøg midt på dagen.
+
+Logbogstrukturen er nu fremover således:
+- skrives kun om aftaler der oprettes og uddeligeres. 
+- opsummeringer på processen af de diverse opgaver.
+- færdiggørelse af opgaver.
