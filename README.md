@@ -70,3 +70,12 @@ Logbogstrukturen er nu fremover således:
 idag færdiggjorde vi samarbejdsaftalen og vejlederaftalen. 
 Vi har analyseret på vores belbin test, som vi bruger senere til rapportskrivning.
 
+Torsdag 19/09-19 
+10.45
+Dagsorden for næste møde d. 24/09-2019 vedtaget og skrevet.
+
+11.15
+Idé genering påbegynd. Første idé er på bordet(robin hood)
+
+//Nichlas Boraso
+
