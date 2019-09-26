@@ -1,4 +1,4 @@
-package worldofzuul;
+package semesterprojekt1;
 
 public class Game
 {
