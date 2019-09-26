@@ -79,3 +79,13 @@ Idé genering påbegynd. Første idé er på bordet(robin hood)
 
 //Nichlas Boraso
 
+
+Tirsdag den 24/09-19 
+
+Vejlederaftale underskrevet og scannes.
+i samarbejdsaftale sørger vi for at skrive udgavenumre, og ændringer. 
+til torsdag har vi alle grundigt læst og forstået e-tiviteten om problemanalyse. Tænkt over hvilken spil idé man vil gå med.
+
+
+
+
