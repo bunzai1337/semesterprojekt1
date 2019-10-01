@@ -92,6 +92,11 @@ Vi har aftalt at gå med Sundhed, som verdensmål, som vores problemstilling ska
 
 Vi skriver mail til Jeppe Schmidt vedrørende vores spilidé. Det er for at høre ham om vil er på nogenlunde rette kurs. 
 Vi udarbejder en dagsorden.
+
+Tirsdag den 01/10-19
+Udarbejdning af problemanalyse.
+Udabejdning af problemformulering og underspørgsmål.
+
  
 
 
