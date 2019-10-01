@@ -79,3 +79,21 @@ Idé genering påbegynd. Første idé er på bordet(robin hood)
 
 //Nichlas Boraso
 
+
+Tirsdag den 24/09-19 
+
+Vejlederaftale underskrevet og scannes.
+i samarbejdsaftale sørger vi for at skrive udgavenumre, og ændringer. 
+til torsdag har vi alle grundigt læst og forstået e-tiviteten om problemanalyse. Tænkt over hvilken spil idé man vil gå med.
+
+Torsdag den 26/9-19
+
+Vi har aftalt at gå med Sundhed, som verdensmål, som vores problemstilling skal afspejle.
+
+Vi skriver mail til Jeppe Schmidt vedrørende vores spilidé. Det er for at høre ham om vil er på nogenlunde rette kurs. 
+Vi udarbejder en dagsorden.
+ 
+
+
+
+
