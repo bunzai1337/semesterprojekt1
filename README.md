@@ -97,6 +97,13 @@ Tirsdag den 01/10-19
 Udarbejdning af problemanalyse.
 Udabejdning af problemformulering og underspørgsmål.
 
+fredag den 04/10-19
+vi har arbejdet på plakaten.
+
+Vi skal lave om på metode afsnit på tirsdag.
+Vi skal kigge mere på planlægning for at tilføje imperi. 
+
+
  
 
 
