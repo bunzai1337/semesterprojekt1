@@ -1,0 +1,27 @@
+
+Udviklingsland? - hvad indebærer det og ifølge hvem?
+
+Er der en målgruppe, hvem skal spille spillet?
+
+Det vil sige at jeres egentlige formål er at lave en prototype, for at teste en målgruppe og se om man kan øge videnniveauet, og på baggrund af det se om det er succesfuldt og derefter levere det i afrika og vestasien? (Jeppe spurgt)
+
+
+Jeppe:
+Det kan nok ikke hjælpe at øge vidensniveauet af unge her, da det ikke er så relevant, men se på det som en prototype til folk i de udsatte lande.
+
+Sarah:
+Kan det være mere relevant at se på hvad den enkelte dansker kan gøre for at hjælpe imod problemet istedet for bare at donere penge? Altså hvor relevant er det egentlig at sende spillet til afrika og asien, kan de overhovedet spille det?
+Det er nok relevant tho, der er enormt mange fattige der stadig har adgang.
+
+Jeppe:
+Hvis det nu er et ideelt projekt og man faktisk vil nedbringe smitsomheden af f.eks. hepatitis, hvad ville man så gøre? Ikke tage derned, men teste på en testgruppe og derefter tage derned.
+Basicly bygger han op omkring det at lave en prototype af noget man kunne sende ud i de udsatte lande efter at have testet det her.
+
+Pas på med at det ikke skal handle om at være ambasadøre for verdensmålet, men vi kan godt tilføje noget til underspørgsmål og metode med det ovenfor.
+
+
+MedicinePerson* :P
+
+
+Jeppes: Jeg synes i har et flot projekt, og i kan binde en fin sløjfe på det. Her hentyder han til at vi laver prototype som kan blive shipped.
+
