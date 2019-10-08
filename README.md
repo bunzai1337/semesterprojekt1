@@ -103,6 +103,14 @@ vi har arbejdet på plakaten.
 Vi skal lave om på metode afsnit på tirsdag.
 Vi skal kigge mere på planlægning for at tilføje imperi. 
 
+tirsdag den 08/10-19
+vi har lavet plakat færdig.
+mads er ude af gruppen. Da han er smuttet på 3. semester.
+Sarah er umildbart kommet ind i vores gruppe.
+Sarah skal præsenteres for en gruppe aftale, hvor vi skal forventningsafstemme med hende.
+
+
+
 
  
 
